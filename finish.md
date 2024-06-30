@@ -15,3 +15,7 @@ Area 51 shares a border with the Yucca Flat region of the Nevada Test Site, the 
 ### Groom Lake
 
 Groom Lake is a salt flat[15] in Nevada used for runways of the Nellis Bombing Range Test Site airport (XTA/KXTA) on the north of the Area 51 USAF military installation. The lake at 4,409 ft (1,344 m) elevation is approximately 3+3⁄4 mi (6 km) from north to south and 3 mi (5 km) from east to west at its widest point.[16] Located within the namesake Groom Lake Valley portion of the Tonopah Basin, the lake is 25 mi (40 km) south of Rachel, Nevada.[17]
+
+#### Later operations
+
+Since the F-117 became operational in 1983, operations at Groom Lake have continued. The base and its associated runway system were expanded, including the expansion of housing and support facilities.[20][46] In 1995, the federal government expanded the exclusionary area around the base to include nearby mountains that had hitherto afforded the only decent overlook of the base, prohibiting access to 3,972 acres (16.07 km2) of land formerly administered by the Bureau of Land Management.[20]
